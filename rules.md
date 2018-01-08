@@ -1,7 +1,7 @@
 # Rules of the 100 Days Of Reading Challenge
 
 ## Main Commitment
-### *I will read for at least a 1/2 hour (30 minutes)every day for the next 100 days.*
+### *I will read for at least a 1/2 hour (30 minutes) every day for the next 100 days.*
 
 #### Start Date
 January 08th, 2018.
