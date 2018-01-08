@@ -2,7 +2,6 @@
 
 ## Contents
 * [Log - click here to see my progress](r1-log.md)
-*
 * [Rules](rules.md)
 * [FAQ](FAQ.md)
 * [Resources](resources.md)
