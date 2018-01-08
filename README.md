@@ -5,7 +5,6 @@
 * [Rules](rules.md)
 * [FAQ](FAQ.md)
 * [Resources](resources.md)
-*
 
 ## If you've decided to join:
 1. Check out [the Official Site](http://100daysofX.com/) for the #100DaysOfReading movement. 
