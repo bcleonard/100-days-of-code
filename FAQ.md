@@ -3,7 +3,7 @@
   **A:** The best way to connect is to use the list of resources available on the official 100DaysOfX site:
   www.100DaysOfX.com/connect 
   
-  Search for #100DaysOfReading on Twitter.  Also, follow [@_100DaysOfReading](https://twitter.com/_100DaysOfReading) on Twitter to stay in touch with the community.
+  Search for #100DaysOfReading on Twitter.  Also, follow [@100DaysOfReading](https://twitter.com/100DaysOfReading) on Twitter to stay in touch with the community.
 
   **Q:** I've already started the challenge, and I'm currently on Day 8. How can I start using this repo to track my progress?  
   **A:** Don't worry. Restore as much info on the previous days, but if you can't then just continue from where you are right now. If you have been tweeting about your progress every day, put the links to your tweets in the Log for each day. Then, follow the format.  
