@@ -1,5 +1,11 @@
 # 100 Days Of Code - R1 Log
 
+### Day 2: Monday, January 08, 2018
+
+**Today's Progress**:  Finished Chapter 2 and in the middle of Chapter 3 of Fire & Fury.
+
+**Thoughts**  I think the quote from former President George W. Bush after President Trump's Inagration speech says it best, "That's some weird shit".
+
 ### Day 1: Sunday, January 07, 2018
 
 **Today's Progress**: Started a new book, Fire & Fury.  Read up to chapter 1.
