@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 4: Wednesday, January 10, 2018
+
+**Today's Progress**:  Finished Chapter 5 and in the middle of chapter 6 of Fire & Fury.
+
+**Thoughts**:  I'm really enjoying reading again.  Go books!
+
 ### Day 3: Tuesday, January 09, 2018
 
 **Today's Progress**:  Finished Chapter 4 and in the middle of chapter 5 of Fire & Fury
