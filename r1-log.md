@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 7: Saturday, January 13, 2018
+
+**Today's Progress**:  Completed up to the middle of chapter 10 of Fire And Fury.
+
+**Thoughts**:  I'm very happy to start reading again.
+
 ### Day 6: Friday, January 12, 2018
 
 **Today's Progress**:  Completed another 30 minutes of Fire And Fury.
