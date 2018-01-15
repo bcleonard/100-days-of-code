@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 8: Sunday, January 14, 2018
+
+**Today's Progress**:  Completed chapter 12 of fire and fury
+
+**Thoughts**:  Sean Spicer's daily mantra "You can't make this shit up."
+
 ### Day 7: Saturday, January 13, 2018
 
 **Today's Progress**:  Completed up to the middle of chapter 10 of Fire And Fury.
