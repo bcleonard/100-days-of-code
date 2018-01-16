@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 9: Monday, January 15, 2018
+
+**Today's Progress**:  Got up to the middle of chapter 14 of Fire And Fury.
+
+**Thoughts**:  We are so screwed.
+
 ### Day 8: Sunday, January 14, 2018
 
 **Today's Progress**:  Completed chapter 12 of fire and fury
