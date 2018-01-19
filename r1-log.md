@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 12: Thursday, January 18, 2018
+
+**Today's Progress**:  Got up to the middle of chapter 19 of Fire And Fury.
+
+**Thoughts**:  Its really incredible on how disfunctional the Trump administration is.
+
 ### Day 11: Wednesday, January 17, 2018
 
 **Today's Progress**:  Got up to the middle of chapter 18 of Fire And Fury.
