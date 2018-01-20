@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 13: Friday, January 19, 2018
+
+**Today's Proress**:  Got up to the middle of chapter 20 of Fire and Fury.
+
+**Thoughts**:  The Mooch!
+
 ### Day 12: Thursday, January 18, 2018
 
 **Today's Progress**:  Got up to the middle of chapter 19 of Fire And Fury.
