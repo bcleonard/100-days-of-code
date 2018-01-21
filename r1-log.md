@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 14: Saturday, January 20, 2018
+
+**Today's Progress**:  Got up to the middle of chapter 21 of Fire And Fury.
+
+**Thoughts**:  The mooch is a tool.
+
 ### Day 13: Friday, January 19, 2018
 
 **Today's Proress**:  Got up to the middle of chapter 20 of Fire and Fury.
