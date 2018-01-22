@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 15: Sunday, January 21, 2018
+
+**Today's Progress**:  Got up to the middle of the epilogue of Fire and Fury.
+
+**Thoughts**:  I think I'll be able to finish it today.
+
 ### Day 14: Saturday, January 20, 2018
 
 **Today's Progress**:  Got up to the middle of chapter 21 of Fire And Fury.
