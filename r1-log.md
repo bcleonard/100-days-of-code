@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 16: Monday, January 22, 2018
+
+**Today's Progress**:  Finished Fire and Fury!
+
+**Thoughts:  Trump is a tool.  Not sure what I'm going to read next.
+
 ### Day 15: Sunday, January 21, 2018
 
 **Today's Progress**:  Got up to the middle of the epilogue of Fire and Fury.
