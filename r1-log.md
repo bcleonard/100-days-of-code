@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 17: Tuesday, January 23, 2018
+
+**Today's Progress**:  Started a new book, [Origin](https://www.amazon.com/Origin-Novel-Dan-Brown/dp/B01LY7FD0D/ref=sr_1_1?ie=UTF8&qid=1516800058&sr=8-1&keywords=origin), by Dan Brown.  The fifth in the Robert Langdon series.  
+
+**Thoughts**:  Normally I read when I got to bed.  I set a timer so that I read for at least 30 minutes.  I got off work and didn't turn on the news.  I had a few minutes before dinner so I started reading.  By the time I fell asleep for the last time, I had finished chapter 48.  The chapters are small, but I powered through and went way over my 30 minutes.  It was awesome.
+
 ### Day 16: Monday, January 22, 2018
 
 **Today's Progress**:  Finished Fire and Fury!
