@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 18: Wedesday, January 24, 2018
+
+**Today's Progress**:  Finished Chapter 83 of Origin.
+
+**Thoughts**:  Either this is an easy read with short chapters or I'm killing it.
+
 ### Day 17: Tuesday, January 23, 2018
 
 **Today's Progress**:  Started a new book, [Origin](https://www.amazon.com/Origin-Novel-Dan-Brown/dp/B01LY7FD0D/ref=sr_1_1?ie=UTF8&qid=1516800058&sr=8-1&keywords=origin), by Dan Brown.  The fifth in the Robert Langdon series.  
