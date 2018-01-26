@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 19: Thursday, January 25, 2018
+
+**Today's Progress**:  Finished Chapter 91 of Origin
+
+**Thoughts**:  I'm starting to figure out what book to read next.
+
 ### Day 18: Wedesday, January 24, 2018
 
 **Today's Progress**:  Finished Chapter 83 of Origin.
