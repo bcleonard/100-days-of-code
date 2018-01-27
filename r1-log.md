@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 20: Friday, January 26, 2018
+
+**Today's Progress**:  Finish the book.
+
+**Thoughts**:  Great book!  Time to pick another.
+
 ### Day 19: Thursday, January 25, 2018
 
 **Today's Progress**:  Finished Chapter 91 of Origin
