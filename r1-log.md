@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 21: Saturday, January 27, 2018
+
+**Today's Progress**:  Started to read [Lean Analytics](https://www.amazon.com/Lean-Analytics-Better-Startup-Faster/dp/1449335675/ref=sr_1_1?ie=UTF8&qid=1517151459&sr=8-1&keywords=lean+analytics) by Alistar Croll and Benjamin Yoskovitz
+
+**Thoughts**:  I can't read while walking on a treadmill.
+
 ### Day 20: Friday, January 26, 2018
 
 **Today's Progress**:  Finish the book.
