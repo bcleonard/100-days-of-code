@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 22: Sunday, January 28, 2018
+
+**Today's Progress**:  Finished Chapter 4 of Lean Analytics
+
+**Thoughts**:  I think I read non-fiction books slower than fiction books.
+
 ### Day 21: Saturday, January 27, 2018
 
 **Today's Progress**:  Started to read [Lean Analytics](https://www.amazon.com/Lean-Analytics-Better-Startup-Faster/dp/1449335675/ref=sr_1_1?ie=UTF8&qid=1517151459&sr=8-1&keywords=lean+analytics) by Alistar Croll and Benjamin Yoskovitz
