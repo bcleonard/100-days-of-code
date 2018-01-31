@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 24: Tuesday, January 30, 2018
+
+**Today's Progress**:  Finished Chapter 9 of Lean Analytics
+
+**Thoughts**:  Nothing really for today.
+
 ### Day 23: Monday, January 29, 2018
 
 **Today's Progress**:  Finished Chapter 6 of Lean Analytics
