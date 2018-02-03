@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 27: Friday, February 2, 2018
+
+**Todays Progress**:  Finished Chapter 14 of Lean Analytics
+
+**Thoughts**:  Nothing really for today.
+
 ### Day 26: Thursday, February 1, 2018
 
 **Today's Progress**:  Finished Chapter 11 of Lean Analytics
