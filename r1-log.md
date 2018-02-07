@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 31: Tuesday, February 6, 2018
+
+**Todays Progress**:  Finished Chapter 20 of Lean Analytics
+
+**Thoughts**:  Nothing really for today.
+
 ### Day 30: Monday, February 5, 2018
 
 **Todays Progress**:  Finished Chapter 18 of Lean Analytics
