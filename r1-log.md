@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 32: Wednesday, February 7, 2018
+
+**Todays Progress**:  Didn't read today
+
+**Thoughts**:  It was very busy day and my brain was too tired to read.
+
 ### Day 31: Tuesday, February 6, 2018
 
 **Todays Progress**:  Finished Chapter 20 of Lean Analytics
