@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 36: Sunday, February 11, 2018
+
+**Todays Progress**:  Finished Chapter 24 of Lean Analytics
+
+**Thoughts**:  Nothing really for today.
+
 ### Day 35: Saturday, February 10, 2018
 
 **Todays Progress**:  Finished Chapter 23 of Lean Analytics
