@@ -1,8 +1,14 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 40: Thursday, February 15, 2018
+
+**Todays Progress**:  Finished Lean Analytics
+
+**Thoughts**:  Finished the book!
+
 ### Day 39: Wednesday, February 14, 2018
 
-**Todays Progress**:  Finished Chapter 21 of Lean Analytics
+**Todays Progress**:  Finished Chapter 31 of Lean Analytics
 
 **Thoughts**:  Nothing really for today.
 
