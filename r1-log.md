@@ -1,5 +1,19 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 42: Saturday, February 17, 2018
+
+**Today's Progress**: Finished Chapter 2 of The Autobiography of Jean-Luc Picard
+
+**Thoughts**: Engage!
+
+### Day 41: Friday, February 16, 2018
+
+**Today's Progress**: Started a new book, The Autobiography of Jean-Luc Picard
+
+**Thoughts**: Engage!
+
+**Link to book**: [The Autobiography of Jean-Luc Picard](https://www.amazon.com/Autobiography-Jean-Luc-Picard-David-Goodman-ebook/dp/B076GNH41W/ref=sr_1_1?ie=UTF8&qid=1518969210&sr=8-1&keywords=jean-luc+picard)
+
 ### Day 40: Thursday, February 15, 2018
 
 **Todays Progress**:  Finished Lean Analytics
