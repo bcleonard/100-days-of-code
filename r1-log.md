@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 44: Monday, February 19, 2018
+
+**Today's Progress**: Finished Chapter 5 of The Autobiography of Jean-Luc Picard
+
+**Thoughts**: Engage.
+
 ### Day 43: Sunday, February 18, 2018
 
 **Today's Progress**: Finished Chapter 2 of The Autobiography of Jean-Luc Picard
