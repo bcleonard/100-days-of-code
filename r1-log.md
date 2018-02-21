@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 45: Tuesday, February 20, 2018
+
+**Today's Progress**: Finished The Autobiography of Jean-Luc Picard
+
+**Thoughts**: The Final Voyage.
+
 ### Day 44: Monday, February 19, 2018
 
 **Today's Progress**: Finished Chapter 5 of The Autobiography of Jean-Luc Picard
