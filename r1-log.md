@@ -1,14 +1,16 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 47: Thursday, February 22, 2018
+
+**Today's Progress**:  Finished Chapter 1 of Essentialism: The Disciplined Pursuit of Less by Greg McKeown.  
+
+**Thoughts**:  I've been reading daily, but I haven't been keeping track of it.
+
 ### Day 46: Wednesday, February 21, 2018
 
 **Today's Progress**:  Started a new book, [Essentialism: The Disciplined Pursuit of Less](https://www.amazon.com/Essentialism-Disciplined-Pursuit-Greg-McKeown-ebook/dp/B00G1J1D28/ref=sr_1_1?ie=UTF8&qid=1519781200&sr=8-1&keywords=greg+mckeown), by Greg McKeown.  
 
 **Thoughts**:  My wife finished this book.  We're both trying to reduce the clutter in our lifes.  Essentialism is a way to accomplish that.
-
-**Today's Progress**: Finished The Autobiography of Jean-Luc Picard
-
-**Thoughts**: The Final Voyage.
 
 ### Day 45: Tuesday, February 20, 2018
 
