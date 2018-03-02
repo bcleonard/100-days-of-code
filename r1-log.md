@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 53: Wednesday, February 28, 2018
+
+**Today's Progress**:  Finished Chapter 7 of Essentialism: The Disciplined Pursuit of Less by Greg McKeown.  
+
+**Thoughts**:  I've been reading daily, but I haven't been keeping track of it.
+
 ### Day 52: Tuesday, February 27, 2018
 
 **Today's Progress**:  Finished Chapter 6 of Essentialism: The Disciplined Pursuit of Less by Greg McKeown.  
