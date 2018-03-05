@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 55: Friday, March 02, 2018
+
+**Today's Progress**:  Finished Chapter 9 of Essentialism: The Disciplined Pursuit of Less by Greg McKeown.  
+
+**Thoughts**:  I've been reading daily, but I haven't been keeping track of it.
+
 ### Day 54: Thursday, March 01, 2018
 
 **Today's Progress**:  Finished Chapter 8 of Essentialism: The Disciplined Pursuit of Less by Greg McKeown.  
