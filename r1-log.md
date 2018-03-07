@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 58: Tuesday, March 06, 2018
+
+**Today's Progress**:  Finished Chapter 13 of Essentialism: The Disciplined Pursuit of Less by Greg McKeown.  
+
+**Thoughts**:  I've been reading daily, but I haven't been keeping track of it.
+
 ### Day 57: Monday, March 05, 2018
 
 **Today's Progress**:  Finished Chapter 12 of Essentialism: The Disciplined Pursuit of Less by Greg McKeown.  
