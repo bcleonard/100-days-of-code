@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 60: Friday, March 09, 2018
+
+**Today's Progress**:  Finished Chapter 16 of Essentialism: The Disciplined Pursuit of Less by Greg McKeown.  
+
+**Thoughts**:  I've been reading daily, but I haven't been keeping track of it.
+
 ### Day 60: Thursday, March 08, 2018
 
 **Today's Progress**:  Finished Chapter 15 of Essentialism: The Disciplined Pursuit of Less by Greg McKeown.  
