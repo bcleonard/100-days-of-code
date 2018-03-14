@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 63: Sunday, March 10, 2018
+
+**Today's Progress**:  Forgot to bring my book on my trip, so I spent about an hour reading about raspberry pi
+
+**Thoughts**:  I've been reading daily, but I haven't been keeping track of it.
+
 ### Day 62: Saturday, March 10, 2018
 
 **Today's Progress**:  Finished Chapter 17 of Essentialism: The Disciplined Pursuit of Less by Greg McKeown.  
