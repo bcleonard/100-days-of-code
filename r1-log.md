@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 65: Tuesday, March 13, 2018
+
+**Today's Progress**:  Finished Chapter 18 of Essentialism: The Disciplined Pursuit of Less by Greg McKeown.  
+
+**Thoughts**:  I've been reading daily, but I haven't been keeping track of it.
+
 ### Day 64: Monday, March 12, 2018
 
 **Today's Progress**:  Forgot to bring my book on my trip, so I spent about an hour reading about raspberry pi
