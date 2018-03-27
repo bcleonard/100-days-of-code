@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 68: Friday, March 16, 2018
+
+**Today's Progress**:  Finished the entire book Essentialism: The Disciplined Pursuit of Less by Greg McKeown.  
+
+**Thoughts**:  I've been reading daily, but I haven't been keeping track of it.
+
 ### Day 67: Thursday, March 15, 2018
 
 **Today's Progress**:  Finished Chapter 20 of Essentialism: The Disciplined Pursuit of Less by Greg McKeown.  
