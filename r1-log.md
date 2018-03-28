@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 70: Sunday, March 18, 2018
+
+**Today's Progress**:  took the day off.  Went to space camp with pack 75
+
+**Thoughts**:  none.
+
 ### Day 69: Saturday, March 17, 2018
 
 **Today's Progress**:  took the day off.  Went to space camp with pack 75
