@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 71: Monday, March 19, 2018
+
+**Today's Progress**:  Started a new book, [Childred of the Storm (Star Trek: Voyager)](https://www.amazon.com/Children-Storm-Star-Trek-Voyager/dp/1451607180/ref=sr_1_1?ie=UTF8&qid=1522235222&sr=8-1&keywords=children+of+the+storm+star+trek) by Kirsten Beyer
+
+**Thoughts**:  I finished my previous book and needed some fiction to read.
+
 ### Day 70: Sunday, March 18, 2018
 
 **Today's Progress**:  took the day off.  Went to space camp with pack 75
