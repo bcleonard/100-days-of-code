@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 69: Saturday, March 17, 2018
+
+**Today's Progress**:  took the day off.  Went to space camp with pack 75
+
+**Thoughts**:  none.
+
 ### Day 68: Friday, March 16, 2018
 
 **Today's Progress**:  Finished the entire book Essentialism: The Disciplined Pursuit of Less by Greg McKeown.  
