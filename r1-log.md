@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 74: Thursday, March 22, 2018
+
+**Today's Progress**:  Finished Chapter 4 of Childred of the Storm (Star Trek: Voyager) by Kirsten Beyer
+
+**Thoughts**:  I've been reading daily, but I haven't been keeping track of it.
+
 ### Day 73: Wednesday, March 21, 2018
 
 **Today's Progress**:  Finished Chapter 3 of Childred of the Storm (Star Trek: Voyager) by Kirsten Beyer
