@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 72: Tuesday, March 20, 2018
+
+**Today's Progress**:  Finished Chapter 2 of Childred of the Storm (Star Trek: Voyager) by Kirsten Beyer
+
+**Thoughts**:  I've been reading daily, but I haven't been keeping track of it.
+
 ### Day 71: Monday, March 19, 2018
 
 **Today's Progress**:  Started a new book, [Childred of the Storm (Star Trek: Voyager)](https://www.amazon.com/Children-Storm-Star-Trek-Voyager/dp/1451607180/ref=sr_1_1?ie=UTF8&qid=1522235222&sr=8-1&keywords=children+of+the+storm+star+trek) by Kirsten Beyer
