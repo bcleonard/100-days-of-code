@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 80: Wednesday, March 28, 2018
+
+**Today's Progress**:  Finished Chapter 10 of Childred of the Storm (Star Trek: Voyager) by Kirsten Beyer
+
+**Thoughts**:  I've been reading daily, but I haven't been keeping track of it.
+
 ### Day 79: Tuesday, March 27, 2018
 
 **Today's Progress**:  Finished Chapter 9 of Childred of the Storm (Star Trek: Voyager) by Kirsten Beyer
