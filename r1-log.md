@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 77: Sunday, March 25, 2018
+
+**Today's Progress**:  Finished Chapter 7 of Childred of the Storm (Star Trek: Voyager) by Kirsten Beyer
+
+**Thoughts**:  I've been reading daily, but I haven't been keeping track of it.
+
 ### Day 76: Saturday, March 24, 2018
 
 **Today's Progress**:  Finished Chapter 6 of Childred of the Storm (Star Trek: Voyager) by Kirsten Beyer
