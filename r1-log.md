@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 88: Thursday, April 06, 2018
+
+**Today's Progress**:  Finished Chapter 19 of Childred of the Storm (Star Trek: Voyager) by Kirsten Beyer
+
+**Thoughts**:  I've been reading daily, but I haven't been keeping track of it.
+
 ### Day 87: Wednesday, April 05, 2018
 
 **Today's Progress**:  Finished Chapter 18 of Childred of the Storm (Star Trek: Voyager) by Kirsten Beyer
