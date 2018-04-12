@@ -1,54 +1,60 @@
 # 100 Days Of Reading - R1 Log
 
-### Day 93: Tuesday, April 11, 2018
+### Day 94: Wednesday, April 11, 2018
+
+**Today's Progress**:  Finished Chapter 2 of Conscience of a Conservative by Jeff Flake
+
+**Thoughts**:  I've been reading daily, but I haven't been keeping track of it.
+
+### Day 93: Tuesday, April 10, 2018
 
 **Today's Progress**:  Finished Chapter 1 of Conscience of a Conservative by Jeff Flake
 
 **Thoughts**:  I've been reading daily, but I haven't been keeping track of it.
 
-### Day 92: Monday, April 10, 2018
+### Day 92: Monday, April 09, 2018
 
 **Today's Progress**:  Started a new book, [Conscience of a Conservative)](https://www.amazon.com/Conscience-Conservative-Rejection-Destructive-Principle-ebook/dp/B073TJYBRN/ref=sr_1_1?ie=UTF8&qid=1523557898&sr=8-1&keywords=jeff+flake) by Jeff Flake
 
 **Thoughts**:  I've been reading daily, but I haven't been keeping track of it.
 
-### Day 91: Sunday, April 09, 2018
+### Day 91: Sunday, April 08, 2018
 
 **Today's Progress**:  Finished Childred of the Storm (Star Trek: Voyager) by Kirsten Beyer
 
 **Thoughts**:  I've been reading daily, but I haven't been keeping track of it.
 
-### Day 90: Saturday, April 08, 2018
+### Day 90: Saturday, April 07, 2018
 
 **Today's Progress**:  Finished Chapter 21 of Childred of the Storm (Star Trek: Voyager) by Kirsten Beyer
 
 **Thoughts**:  I've been reading daily, but I haven't been keeping track of it.
 
-### Day 89: Friday, April 07, 2018
+### Day 89: Friday, April 06, 2018
 
 **Today's Progress**:  Finished Chapter 20 of Childred of the Storm (Star Trek: Voyager) by Kirsten Beyer
 
 **Thoughts**:  I've been reading daily, but I haven't been keeping track of it.
 
-### Day 88: Thursday, April 06, 2018
+### Day 88: Thursday, April 05, 2018
 
 **Today's Progress**:  Finished Chapter 19 of Childred of the Storm (Star Trek: Voyager) by Kirsten Beyer
 
 **Thoughts**:  I've been reading daily, but I haven't been keeping track of it.
 
-### Day 87: Wednesday, April 05, 2018
+### Day 87: Wednesday, April 04, 2018
 
 **Today's Progress**:  Finished Chapter 18 of Childred of the Storm (Star Trek: Voyager) by Kirsten Beyer
 
 **Thoughts**:  I've been reading daily, but I haven't been keeping track of it.
 
-### Day 86: Tuesday, April 04, 2018
+### Day 86: Tuesday, April 03, 2018
 
 **Today's Progress**:  Finished Chapter 17 of Childred of the Storm (Star Trek: Voyager) by Kirsten Beyer
 
 **Thoughts**:  I've been reading daily, but I haven't been keeping track of it.
 
-### Day 85: Tuesday, April 03, 2018
+### Day 85: Monday, April 02, 2018
 
 **Today's Progress**:  Finished Chapter 16 of Childred of the Storm (Star Trek: Voyager) by Kirsten Beyer
 
