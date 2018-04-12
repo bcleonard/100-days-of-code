@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 92: Monday, April 10, 2018
+
+**Today's Progress**:  Started a new book, [Conscience of a Conservative)](https://www.amazon.com/Conscience-Conservative-Rejection-Destructive-Principle-ebook/dp/B073TJYBRN/ref=sr_1_1?ie=UTF8&qid=1523557898&sr=8-1&keywords=jeff+flake) by Jeff Flake
+
+**Thoughts**:  I've been reading daily, but I haven't been keeping track of it.
+
 ### Day 91: Sunday, April 09, 2018
 
 **Today's Progress**:  Finished Childred of the Storm (Star Trek: Voyager) by Kirsten Beyer
