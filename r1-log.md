@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 101: Wednesday, April 18, 2018
+
+**Today's Progress**:  Finished Conscience of a Conservative by Jeff Flake
+
+**Thoughts**:  This was short read.  While he said he wasn't going to blame the Democrats, he did in some places.  I really didn't get the sense on how the Republican party can move forwared other than just to reject everything that President Trump stands for.
+
 ### Day 100: Tuesday, April 17, 2018
 
 **Today's Progress**:  Finished Chapter 8 of Conscience of a Conservative by Jeff Flake
