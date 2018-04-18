@@ -1,6 +1,12 @@
 # 100 Days Of Reading - R1 Log
 
-### Day 98: Sunday, April 17, 2018
+### Day 99: Monday, April 16, 2018
+
+**Today's Progress**:  Finished Chapter 7 of Conscience of a Conservative by Jeff Flake
+
+**Thoughts**:  I've been reading daily, but I haven't been keeping track of it.
+
+### Day 98: Sunday, April 15, 2018
 
 **Today's Progress**:  Finished Chapter 6 of Conscience of a Conservative by Jeff Flake
 
