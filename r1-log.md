@@ -1,5 +1,17 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 103: Friday, April 20, 2018
+
+**Today's Progress**:  Finished Chapter 12 of Doctor Who: Silhouette by Justin Richards
+
+**Thoughts**:  Gotta Love Doctor Who
+
+### Day 102: Thursday, April 19, 2018
+
+**Today's Progress**:  Started a new book, [Doctor Who: Silhouette](https://www.amazon.com/Doctor-Who-Silhouette-Justin-Richards-ebook/dp/B00KUQITIE/ref=tmm_kin_swatch_0?_encoding=UTF8&qid=&sr=), by Justin Ricards.  This book features the Twelfth Doctor.  
+
+**Thoughts**:  I'm switching between fiction and non-fiction books.
+
 ### Day 101: Wednesday, April 18, 2018
 
 **Today's Progress**:  Finished Conscience of a Conservative by Jeff Flake
