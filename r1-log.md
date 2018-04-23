@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 105: Sunday, April 22, 2018
+
+**Today's Progress**:  Finished Doctor Who: Silhouette by Justin Richards
+
+**Thoughts**:  Gotta Love Doctor Who
+
 ### Day 104: Saturday, April 21, 2018
 
 **Today's Progress**:  Finished Chapter 17 of Doctor Who: Silhouette by Justin Richards
