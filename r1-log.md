@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R1 Log
 
+### Day 107: Tuesday April 24, 2018
+
+**Today's Progress**:  Finished Chapter 2 of A Higher Loyalty: Truth, Lies, and Leadership by James Comey.
+
+**Thoughts**:  I'm switching between fiction and non-fiction books.
+
 ### Day 106: Monday April 23, 2018
 
 **Today's Progress**:  Started a new book, [A Higher Loyalty: Truth, Lies, and Leadership](https://www.amazon.com/Higher-Loyalty-Truth-Lies-Leadership/dp/1250192455/ref=sr_1_1?ie=UTF8&qid=1524594608&sr=8-1&keywords=james+comey), by James Comey.  This book is written by the former FBI director fired by President Trump for continuing the Russia investigation.
