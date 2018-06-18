@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R2 Log
 
+### Day 3: Friday June 15, 2018
+
+**Today's Progress**:  Continued reading Raspberry Pi for Kids Made Easy by Mark Mayne.
+
+**Thoughts**:  I'm just continuing to read this book.
+
 ### Day 2: Thursday June 14, 2018
 
 **Today's Progress**:  Started Raspberry Pi for Kids Made Easy by Mark Mayne.
