@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R3 Log
 
+### Day 4: Thursday, November 08, 2018
+
+**Today's Progress**:  Finished [Doctor Who: The City Of The Dead](https://www.amazon.com/City-Dead-Doctor-Who/dp/0563538392) by Lloyd Rose
+
+**Thoughts**:  Done.  That was fast.
+
 ### Day 3: Wednesday, November 07, 2018
 
 **Today's Progress**:  Finished Chapter 6 [Doctor Who: The City Of The Dead](https://www.amazon.com/City-Dead-Doctor-Who/dp/0563538392) by Lloyd Rose
