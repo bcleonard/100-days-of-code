@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R3 Log
 
+### Day 13: Saturday, November 17, 2018
+
+**Today's Progress**:  Finished Chapter 8 [How to Use IBM Cloud Object Storage When Building and Operating Cloud Native Applications](http://www.redbooks.ibm.com/abstracts/redp5491.html?Open) by Giri Badanahatti, Aaron Thomas Binford, Charlie Crawford, Daniel Fitzgerald, Vasfi Gucer, Wesley Leggette, Mrudula Madiraju, Daniel Pittner, Joeri Van Speybroek
+
+**Thoughts**:  it put me to sleep
+
 ### Day 12: Friday, November 16, 2018
 
 **Today's Progress**:  Finished Chapter 7 [How to Use IBM Cloud Object Storage When Building and Operating Cloud Native Applications](http://www.redbooks.ibm.com/abstracts/redp5491.html?Open) by Giri Badanahatti, Aaron Thomas Binford, Charlie Crawford, Daniel Fitzgerald, Vasfi Gucer, Wesley Leggette, Mrudula Madiraju, Daniel Pittner, Joeri Van Speybroek
