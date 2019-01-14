@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R4 Log
 
+### Day 4: Thursday January 10, 2019
+
+**Today's Progress**:  Started [Doctor Who: The Adventures of Henrietta Street](https://www.amazon.com/Adventuress-Henrietta-Street-Doctor-Who/dp/0563538422/ref=sr_1_1?ie=UTF8&qid=1547498259&sr=8-1&keywords=doctor+who+henrietta+street) by Lawrence Miles
+
+**Thoughts**:  Started
+
 ### Day 3: Wednesday January 09, 2019
 
 **Today's Progress**:  Finished [Doctor Who: The Crooked World](https://www.amazon.com/Crooked-World-Doctor-Who/dp/0563538562/ref=sr_1_2?ie=UTF8&qid=1547067227&sr=8-2&keywords=crooked+world) by Steve Lyons
