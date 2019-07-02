@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R4 Log
 
+### Day 13: Tuesday, July 02, 2019
+
+**Today's Progress**:  Finished Level Two of [Ready Player One](https://www.amazon.com/Ready-Player-One-Ernest-Cline/dp/0307887448) by Ernest Cline
+
+**Thoughts**:  I'm reading this book to see if its appropiate for my son.
+
 ### Day 12: Monday, July 01, 2019
 
 **Today's Progress**:  Started [Ready Player One](https://www.amazon.com/Ready-Player-One-Ernest-Cline/dp/0307887448) by Ernest Cline
