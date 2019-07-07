@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R4 Log
 
+### Day 15: Friday, July 05, 2019
+
+**Today's Progress**:  Finished Chapter 6 [Snow Crash](https://www.amazon.com/Snow-Crash-Neal-Stephenson/dp/0553380958/ref=sr_1_1?keywords=snow+crash&qid=1562531078&s=gateway&sr=8-1) by Neal Stephenson
+
+**Thoughts**:  I'm reading this book to see if its appropiate for my son.  Its not.
+
 ### Day 15: Thursday, July 04, 2019
 
 **Today's Progress**:  Started [Snow Crash](https://www.amazon.com/Snow-Crash-Neal-Stephenson/dp/0553380958/ref=sr_1_1?keywords=snow+crash&qid=1562531078&s=gateway&sr=8-1) by Neal Stephenson
