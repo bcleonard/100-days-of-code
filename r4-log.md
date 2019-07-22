@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R4 Log
 
+### Day 30: Friday, July 19, 2019
+
+**Today's Progress**:  Finished Chapter 60 Snow Crash](https://www.amazon.com/Snow-Crash-Neal-Stephenson/dp/0553380958/ref=sr_1_1?keywords=snow+crash&qid=1562531078&s=gateway&sr=8-1) by Neal Stephenson
+
+**Thoughts**:  I think, I've read this book before but I'm not sure.
+
 ### Day 29: Thursday, July 18, 2019
 
 **Today's Progress**:  Finished Chapter 58 Snow Crash](https://www.amazon.com/Snow-Crash-Neal-Stephenson/dp/0553380958/ref=sr_1_1?keywords=snow+crash&qid=1562531078&s=gateway&sr=8-1) by Neal Stephenson
