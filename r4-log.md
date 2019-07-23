@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R4 Log
 
+### Day 34: Tuesday, July 23, 2019
+
+**Today's Progress**:  Finished Snow Crash](https://www.amazon.com/Snow-Crash-Neal-Stephenson/dp/0553380958/ref=sr_1_1?keywords=snow+crash&qid=1562531078&s=gateway&sr=8-1) by Neal Stephenson
+
+**Thoughts**:  It was a wild book and that really started to get old at the end.  The ending was just that, an ending.
+
 ### Day 33: Monday, July 22, 2019
 
 **Today's Progress**:  Finished Chapter 66 Snow Crash](https://www.amazon.com/Snow-Crash-Neal-Stephenson/dp/0553380958/ref=sr_1_1?keywords=snow+crash&qid=1562531078&s=gateway&sr=8-1) by Neal Stephenson
