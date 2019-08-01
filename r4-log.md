@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R4 Log
 
+### Day 43: Thursday, August 01, 2019
+
+**Today's Progress**:  Finished page 107 [Everything Is #@%!ED: A Book About Hope](https://www.amazon.com/Untitled-Mark-Manson/dp/0062888439/ref=sr_1_3?keywords=mark+manson&qid=1563999184&s=gateway&sr=8-3) by Mark Manson
+
+**Thoughts**:  My wife gave me this book to read.  
+
 ### Day 42: Wednesday, July 31, 2019
 
 **Today's Progress**:  Finished page 104 [Everything Is #@%!ED: A Book About Hope](https://www.amazon.com/Untitled-Mark-Manson/dp/0062888439/ref=sr_1_3?keywords=mark+manson&qid=1563999184&s=gateway&sr=8-3) by Mark Manson
