@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R5 Log
 
+### Day 07: Sunday, September 29, 2019
+
+**Today's Progress**:  Finished [Everything Is #@%!ED: A Book About Hope](https://www.amazon.com/Untitled-Mark-Manson/dp/0062888439/ref=sr_1_3?keywords=mark+manson&qid=1563999184&s=gateway&sr=8-3) by Mark Manson
+
+**Thoughts**:  We are so #@%!ED.
+
 ### Day 06: Saturday, September 28, 2019
 
 **Today's Progress**:  Finished Chapter 8 [Everything Is #@%!ED: A Book About Hope](https://www.amazon.com/Untitled-Mark-Manson/dp/0062888439/ref=sr_1_3?keywords=mark+manson&qid=1563999184&s=gateway&sr=8-3) by Mark Manson
