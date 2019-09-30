@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R5 Log
 
+### Day 08: Monday, September 30, 2019
+
+**Today's Progress**:  Finished Chapter 1 [Trigger Mortis: A James Bond Novel](https://www.amazon.com/Trigger-Mortis-James-Novels-Paperback/dp/0062395114/ref=sr_1_1?keywords=trigger+mortis&qid=1569863589&s=gateway&sr=8-1) by Anthony Horowitz
+
+**Thoughts**:  Bond, James Bond.
+
 ### Day 07: Sunday, September 29, 2019
 
 **Today's Progress**:  Finished [Everything Is #@%!ED: A Book About Hope](https://www.amazon.com/Untitled-Mark-Manson/dp/0062888439/ref=sr_1_3?keywords=mark+manson&qid=1563999184&s=gateway&sr=8-3) by Mark Manson
