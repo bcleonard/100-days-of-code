@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R5 Log
 
+### Day 18: Thursday, October 10, 2019
+
+**Today's Progress**:  Finished Part One [Trigger Mortis: A James Bond Novel](https://www.amazon.com/Trigger-Mortis-James-Novels-Paperback/dp/0062395114/ref=sr_1_1?keywords=trigger+mortis&qid=1569863589&s=gateway&sr=8-1) by Anthony Horowitz
+
+**Thoughts**:  Bond, James Bond.
+
 ### Day 17: Wednesday, October 09, 2019
 
 **Today's Progress**:  Finished Chapter 11 [Trigger Mortis: A James Bond Novel](https://www.amazon.com/Trigger-Mortis-James-Novels-Paperback/dp/0062395114/ref=sr_1_1?keywords=trigger+mortis&qid=1569863589&s=gateway&sr=8-1) by Anthony Horowitz
