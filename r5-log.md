@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R5 Log
 
+### Day 25: Thursday, October 17, 2019
+
+**Today's Progress**:  Continued [Doctor Who: The Adventures of Henrietta Street](https://www.amazon.com/Adventuress-Henrietta-Street-Doctor-Who/dp/0563538422/ref=sr_1_1?ie=UTF8&qid=1547498259&sr=8-1&keywords=doctor+who+henrietta+street) by Lawrence Miles
+
+**Thoughts**:  this is still a weird way to read a book
+
 ### Day 24: Wednesday, October 16, 2019
 
 **Today's Progress**:  Finished the entire book! [Trigger Mortis: A James Bond Novel](https://www.amazon.com/Trigger-Mortis-James-Novels-Paperback/dp/0062395114/ref=sr_1_1?keywords=trigger+mortis&qid=1569863589&s=gateway&sr=8-1) by Anthony Horowitz
