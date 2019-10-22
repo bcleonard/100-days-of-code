@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R5 Log
 
+### Day 29: Monday, October 21, 2019
+
+**Today's Progress**:  Continued [Doctor Who: The Adventures of Henrietta Street](https://www.amazon.com/Adventuress-Henrietta-Street-Doctor-Who/dp/0563538422/ref=sr_1_1?ie=UTF8&qid=1547498259&sr=8-1&keywords=doctor+who+henrietta+street) by Lawrence Miles
+
+**Thoughts**:  this is still a weird way to read a book
+
 ### Day 28: Sunday, October 20, 2019
 
 **Today's Progress**:  Continued [Doctor Who: The Adventures of Henrietta Street](https://www.amazon.com/Adventuress-Henrietta-Street-Doctor-Who/dp/0563538422/ref=sr_1_1?ie=UTF8&qid=1547498259&sr=8-1&keywords=doctor+who+henrietta+street) by Lawrence Miles
