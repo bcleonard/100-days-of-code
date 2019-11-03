@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R5 Log
 
+### Day 41: Saturday, November 02, 2019
+
+**Today's Progress**:  Started [Night School - Jack Reacher Novel](https://www.amazon.com/Night-School-Jack-Reacher-Novel/dp/0804178828) by Lee Child
+
+**Thoughts**:  Love a good Jack Reacher novel
+
 ### Day 40: Friday, November 01, 2019
 
 **Today's Progress**:  Finished [Doctor Who: The Adventures of Henrietta Street](https://www.amazon.com/Adventuress-Henrietta-Street-Doctor-Who/dp/0563538422/ref=sr_1_1?ie=UTF8&qid=1547498259&sr=8-1&keywords=doctor+who+henrietta+street) by Lawrence Miles
