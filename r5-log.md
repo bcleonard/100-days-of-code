@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R5 Log
 
+### Day 42: Sunday, November 03, 2019
+
+**Today's Progress**:  Finished Chapter 4 [Night School - Jack Reacher Novel](https://www.amazon.com/Night-School-Jack-Reacher-Novel/dp/0804178828) by Lee Child
+
+**Thoughts**:  Love a good Jack Reacher novel
+
 ### Day 41: Saturday, November 02, 2019
 
 **Today's Progress**:  Started [Night School - Jack Reacher Novel](https://www.amazon.com/Night-School-Jack-Reacher-Novel/dp/0804178828) by Lee Child
