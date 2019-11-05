@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R5 Log
 
+### Day 44: Tuesday, November 05, 2019
+
+**Today's Progress**:  Started [Mr Monk On Patrol](https://www.amazon.com/Mr-Monk-Patrol-Lee-Goldberg/dp/0451236645/ref=sr_1_3?keywords=mr.+monk+on+patrol&qid=1572981969&sr=8-3) by Lee Goldberg
+
+**Thoughts**:  Love Monk!
+
 ### Day 43: Monday, November 04, 2019
 
 **Today's Progress**:  Finished Chapter 26 [Night School - Jack Reacher Novel](https://www.amazon.com/Night-School-Jack-Reacher-Novel/dp/0804178828) by Lee Child
