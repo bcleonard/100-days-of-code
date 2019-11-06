@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R5 Log
 
+### Day 45: Wednesday, November 06, 2019
+
+**Today's Progress**:  Read up to Chapter 10 [Mr Monk On Patrol](https://www.amazon.com/Mr-Monk-Patrol-Lee-Goldberg/dp/0451236645/ref=sr_1_3?keywords=mr.+monk+on+patrol&qid=1572981969&sr=8-3) by Lee Goldberg
+
+**Thoughts**:  Love Monk!
+
 ### Day 44: Tuesday, November 05, 2019
 
 **Today's Progress**:  Started [Mr Monk On Patrol](https://www.amazon.com/Mr-Monk-Patrol-Lee-Goldberg/dp/0451236645/ref=sr_1_3?keywords=mr.+monk+on+patrol&qid=1572981969&sr=8-3) by Lee Goldberg
