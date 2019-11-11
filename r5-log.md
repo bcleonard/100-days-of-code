@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R5 Log
 
+### Day 49: Sunday, November 10, 2019
+
+**Today's Progress**:  Finished [Mr Monk Is a Mess](https://www.amazon.com/Mr-Monk-Mess-Lee-Goldberg/dp/0451238877) by Lee Goldberg
+
+**Thoughts**:  Love Monk! I chewed through this book!
+
 ### Day 48: Saturday, November 09, 2019
 
 **Today's Progress**:  Started [Mr Monk Is a Mess](https://www.amazon.com/Mr-Monk-Mess-Lee-Goldberg/dp/0451238877) by Lee Goldberg
