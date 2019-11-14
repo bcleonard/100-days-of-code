@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R5 Log
 
+### Day 52: Wednesday, November 13, 2019
+
+**Today's Progress**:  Started [Doctor Who: The Bodysnatchers](https://www.amazon.com/Bodysnatchers-Doctor-Who-Mark-Morris/dp/0563405686) by Mark Morris
+
+**Thoughts**:  Gotto love the old Doc!
+
 ### Day 51: Tuesday, November 12, 2019
 
 **Today's Progress**:  Finished [Mr Monk Gets Even](https://www.amazon.com/Mr-Monk-Gets-Even-Goldberg/dp/0451416031) by Lee Goldberg
