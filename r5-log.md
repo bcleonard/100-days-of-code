@@ -1,5 +1,11 @@
 # 100 Days Of Reading - R5 Log
 
+### Day 53: Thursday, November 14, 2019
+
+**Today's Progress**:  Finished Chapter 4 [Doctor Who: The Bodysnatchers](https://www.amazon.com/Bodysnatchers-Doctor-Who-Mark-Morris/dp/0563405686) by Mark Morris
+
+**Thoughts**:  Gotto love the old Doc!
+
 ### Day 52: Wednesday, November 13, 2019
 
 **Today's Progress**:  Started [Doctor Who: The Bodysnatchers](https://www.amazon.com/Bodysnatchers-Doctor-Who-Mark-Morris/dp/0563405686) by Mark Morris
